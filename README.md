@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and mobile app development and coding.
 - 🌱 I’m currently learning Django and Android Studio
 - 💞️ I’m looking to collaborate on as of now, nothing :)
-- 📫 How to reach me through phone or by email -> nyhapeoples2014@gmail.com
+- 📫 How to reach me ... in the works :)
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I like superheroes and comics
 
